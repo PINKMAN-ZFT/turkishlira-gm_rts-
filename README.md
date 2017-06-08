@@ -1,0 +1,1 @@
+# turkishlira-gm_rts-
